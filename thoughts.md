@@ -2,4 +2,5 @@
 2. my second takeaway is that it helps a lot to review material in advance
 3. my first strategy is to fully commit to the pomodoro technique
 4. my second strategy is to make a point of reviewing old material daily to stay fresh
-5. my shoutout is to my parents, for coming to visit last week 
+5. my shoutout is to my parents, for coming to visit last week
+6. test new thought 
